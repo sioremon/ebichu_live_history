@@ -12,7 +12,7 @@
 私立恵比寿中学10th Anniversary Tour 2022～drawer～@市川文化会館  
 NIGHT HEAD 2041-THE STAGE- 7/1 2部    
 ファミえん 2022 Day1 声出しスタンディング  
-『DIVE INTO EBICHU MUSIC～私立恵比寿中学の素晴らしき音楽の世界』 発売記念イベント 8/10 
+『DIVE INTO EBICHU MUSIC～私立恵比寿中学の素晴らしき音楽の世界』 発売記念イベント 8/10   
 風見和香生誕ソロライブ 8/25  
 もっとエビ展  8/19 8/29  
 (予定)氣志團万博 2022  
