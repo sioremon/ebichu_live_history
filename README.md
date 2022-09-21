@@ -7,7 +7,8 @@
 ## 2021年
 ちゅうおん 2021  
 中山莉子の生誕祭｡ @Zepp Diversity  
-大学芸会2021～Reboot～ Day2  
+大学芸会2021～Reboot～ Day2
+## 2022年
 ぽーランド7!!!!!!!  
 私立恵比寿中学10th Anniversary Tour 2022～drawer～@市川文化会館  
 NIGHT HEAD 2041-THE STAGE- 7/1 2部
