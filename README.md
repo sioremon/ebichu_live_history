@@ -25,9 +25,10 @@ NIGHT HEAD 2041-THE STAGE- 7/1 2部
 tvk･ぴあ 50th anniversary LIVE 2022  
 平成いそきんトリオ  
 秋田分校 2022 
-柏木ひなた卒業式 ｢smile for you｣
-New style大学芸会～run in our ebichu family～
+柏木ひなた卒業式 ｢smile for you｣  
+New style大学芸会～run in our ebichu family～  
 ももいろ歌合戦2022
+
 
 
 
