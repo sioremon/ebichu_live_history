@@ -9,6 +9,7 @@
 中山莉子の生誕祭｡ @Zepp Diversity  
 大学芸会2021～Reboot～ Day2  
 ## 2022年
+ハマフェス  
 ぽーランド7!!!!!!!  
 私立恵比寿中学10th Anniversary Tour 2022～drawer～@市川文化会館  
 NIGHT HEAD 2041-THE STAGE- 7/1 2部  
@@ -37,5 +38,6 @@ FCイベント
 (予定)kyo-do? リリースイベント  
 (予定)spring tour ~100%ebism~ キャナルシティ劇場  
 (予定)kyo-do?特典会 お話会(小久保柚乃)  
+(予定)spring tour ~100%ebism~ 大宮ソニックシティ  
 (予定)spring tour ~100%ebism~ パシフィコ横浜  
 (予定)kyo-do?特典会 お話会(中山莉子,小久保柚乃,仲村悠菜), 2s会(中山莉子)  
