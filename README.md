@@ -35,10 +35,14 @@ New style大学芸会～run in our ebichu family～
 FCイベント  
 低学年フリーライブ@キャナルシティ博多(ライブ･特典会)  
 小久保柚乃 生誕ソロライブ ｢水素｡｣  
-(予定)spring tour 〜100%ebism〜 森のホール21  
-(予定)kyo-do? リリースイベント  
-(予定)spring tour 〜100%ebism〜 キャナルシティ劇場  
-(予定)kyo-do?特典会 お話会(小久保柚乃)  
-(予定)spring tour 〜100%ebism〜 大宮ソニックシティ  
+spring tour 〜100%ebism〜 森のホール21  
+kyo-do? リリースイベント  
+spring tour 〜100%ebism〜 キャナルシティ劇場  
+kyo-do?特典会 お話会(小久保柚乃)  
+spring tour 〜100%ebism〜 大宮ソニックシティ  
+(予定)仲村悠菜 生誕  
+(予定)小林歌穂 生誕  
+(予定)安本彩花(東京) 生誕  
+(予定)小林歌穂 写真集 発売記念イベント  
 (予定)spring tour 〜100%ebism〜 パシフィコ横浜  
 (予定)kyo-do?特典会 お話会(中山莉子,小久保柚乃,仲村悠菜), 2s会(中山莉子)  
