@@ -1,4 +1,4 @@
-# ebichi_live_history
+# ebichu_live_history
 私立恵比寿中学関連のイベント参戦歴(自分用)  
 ## 2019年
 ももいろ歌合戦 2019  
