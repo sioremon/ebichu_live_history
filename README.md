@@ -85,7 +85,7 @@ indigo hour特典会 4/7
 小林歌穂生誕  
 安本彩花生誕@心斎橋BIGCAT   
 春ツアー　東京(NHKホール) 6/16  
-indigo hour特典会 6/23  
+indigo hour特典会 6/23(2s 中山・小久保・仲村、握手 中山・小久保)  
 安本彩花生誕@Zepp Yokohama   
 (予定)春ツアー　大阪　7/27  
 (予定)ファミえん Day1, Day2  
