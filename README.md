@@ -90,6 +90,7 @@ indigo hour特典会 6/23(2s 中山・小久保・仲村、握手 中山・小�
 (予定)春ツアー　TDC  
 (予定)春ツアー　大阪　7/27  
 (予定)ファミえん Day1, Day2  
+(予定)秋田CARAVAN MUSIC FES  
 
 
 
