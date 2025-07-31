@@ -127,6 +127,7 @@
 13. 小林生誕  
 14. 小林歌穂 卒業式「ぽ〜EVER ―消えない落書きー」  
 15. 新体制始業式「GOLDEN EIGHT ―new again―」  
+16. テレ朝 SUMMER FES  
 
 
 
