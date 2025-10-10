@@ -128,8 +128,12 @@
 14. 小林歌穂 卒業式「ぽ〜EVER ―消えない落書きー」  
 15. 新体制始業式「GOLDEN EIGHT ―new again―」  
 16. テレ朝 SUMMER FES  
-
-
+17. FAMIEN2025 Day1  
+18. FAMIEN2025 Day2  
+19. 風とロック芋煮会  
+20. MAKE A MONOGATARI 2025  
+21. 中山莉子の生誕祭。  
+22. CHUON2025 愛知  
 
 
 
